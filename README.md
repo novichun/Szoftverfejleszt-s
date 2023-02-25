@@ -1,1 +1,1 @@
-# Szoftverfejleszt-s
+# Szoftverfejlesztes Novák Dániel (OQC1QU)
